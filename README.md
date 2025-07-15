@@ -1,0 +1,1 @@
+# inflationcompass.github.io
